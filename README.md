@@ -6,5 +6,6 @@ Doesn't know how to code. Enjoy the free spoofer and cheeto will continue to upd
 Pterodactyl #0003 dont buy from this skid!
 
 WSC/Skill cracked by NotAK#6969
+https://youtu.be/kTTI36404MM
 
 Enter any username and pass to use cracked version of this skid garbage.
