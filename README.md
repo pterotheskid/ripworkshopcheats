@@ -9,5 +9,6 @@ WSC/Skill cracked by NotAK#6969
 https://youtu.be/kTTI36404MM
 
 Enter any username and pass to use cracked version of this skid garbage.
+
 Nice try ptero but your spoofer is permanently cracked :)
 Your cheat is next!
